@@ -1,2 +1,2 @@
 # sceal
-scéalata a bhailiú
+scéalta a bhailiú
